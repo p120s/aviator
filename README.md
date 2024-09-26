@@ -1,4 +1,4 @@
-<h1>Download Aviator Predictor 2024 - The Artificial Intelligence (AI) that underpins the Aviator Predictor app is designed to provide a reliable forecast of the plane's drop point with 99% accuracy.  </h1>
+
 <h3 align=center>
 <img src='https://i.ibb.co/Y72Yyfr/Picsart-24-05-04-22-40-56-935.jpg'>
 </h3>
